@@ -8,7 +8,7 @@ align="left"
 
 <div align="center">
 
-<b> please interact only if 13< </b> <img 
+<b> please interact only if <13 </b> <img 
 src="https://cdn3.emoji.gg/emojis/26515-gothic-cross.gif"
 width="25"
 /> <code>SINGLE</code> <br>
@@ -22,3 +22,6 @@ resident evil , good omens <b>
 
 <br>
 <sub> <blockquote> You promised me you'd take me there again someday. But you never did.</blockquote> </sub>
+
+
+<br>
