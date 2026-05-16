@@ -1,31 +1,24 @@
-<div align="center">
+<div align="left">
 
 <img 
-src="https://i.postimg.cc/VkmQntyD/Untitled6-20260425182807-fliter-sepia-channel-red-mode-lighten.png" 
-width="450" 
+src="https://i.postimg.cc/s2r5ZqvQ/Untitled30-20260516190133.png"
+width="450"
 align="left"
 />
 
-<br><br><br>
+<div align="center">
 
-<h2 align="center">18+ INTERACT ONLY ☠️ TAKEN</h2>
+<b> please interact only if 13< </b> <img 
+src="https://cdn3.emoji.gg/emojis/26515-gothic-cross.gif"
+width="25"
+/> <code>SINGLE</code> <br>
 
-<p align="center">
-elderring, soulsborne, thelockedtomb,<br>
-baldursgate3, darkestdungeon.
-</p>
-
-<br>
-
-<p align="center">
-<code>i block freely.</code>
-<code>pro-para, lolisho & incest dni.</code>
-</p>
 
 <br>
 
-<p align="center">
-<code>very low social battery, much love.</code>
-</p>
 
-</div>
+silent hill , dead by daylight , red dead redeption , <br>
+resident evil , good omens <b>
+
+<br>
+<sub> <blockquote> You promised me you'd take me there again someday. But you never did.</blockquote> </sub>
