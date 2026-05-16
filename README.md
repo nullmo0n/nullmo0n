@@ -1,16 +1,31 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**nullmo0n/nullmo0n** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img 
+src="https://i.postimg.cc/VkmQntyD/Untitled6-20260425182807-fliter-sepia-channel-red-mode-lighten.png" 
+width="450" 
+align="left"
+/>
 
-Here are some ideas to get you started:
+<br><br><br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<h2 align="center">18+ INTERACT ONLY ☠️ TAKEN</h2>
+
+<p align="center">
+elderring, soulsborne, thelockedtomb,<br>
+baldursgate3, darkestdungeon.
+</p>
+
+<br>
+
+<p align="center">
+<code>i block freely.</code>
+<code>pro-para, lolisho & incest dni.</code>
+</p>
+
+<br>
+
+<p align="center">
+<code>very low social battery, much love.</code>
+</p>
+
+</div>
